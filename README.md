@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Jotra04
-- 🎓 I study at Ugent university, 3rd Bachelor Informatics
+- 🎓 I study at Ugent university, 1st Master Informatics
